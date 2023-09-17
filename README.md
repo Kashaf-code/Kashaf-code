@@ -4,4 +4,4 @@
 - 🎯 Goal : To be a better Developer
 - 📪 How to Reach me: kashafanwar21@gmail.com
 - 💌 Fun Facts:
-    Overthinks thinking not to overthink
+    Overthinks thinking to not to overthink 🙂
