@@ -1,3 +1,5 @@
+Hello, folks!
+
 - 🤓 Self taught Developer
 - 🧑‍💻 Working on Web and App Development
 - 📝 Writing Words, Compiling Code
