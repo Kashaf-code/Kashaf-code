@@ -9,9 +9,9 @@
 
 - 📝 Writing Words, Compiling Code
 
-- 🎯 Goal: **To be a better Developer**
+- 🎯 Goal : **To be a better Developer**
 
-- 📫 How to reach me **kashafanwar21@gmail.com**
+- 📫 How to reach me : **kashafanwar21@gmail.com**
 
 - ⚡ Fun fact:
 -               I am funny 😉
