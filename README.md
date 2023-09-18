@@ -14,10 +14,10 @@
 - 📫 How to reach me **kashafanwar21@gmail.com**
 
 - ⚡ Fun fact:
- -              - I am funny😉
-               - Overthinks thinking to not to overthink 🙂
-               - Hayat nedir, canım? ( Ahh, Learning Turkish out of curiosity ) 🙃
-               **
+-               I am funny😉
+-               Overthinks thinking to not to overthink 🙂
+-               Hayat nedir, canım? ( Ahh, Learning Turkish out of curiosity ) 🙃
+               
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
